@@ -1,7 +1,7 @@
 # hololive-20200924
 桐生可可炎上事件-20200924
 
-# 前言
+# 转载前言
 
 本记录基本来源于[海马sensei](https://space.bilibili.com/434145079)发在bilibili上的专栏文章
 
