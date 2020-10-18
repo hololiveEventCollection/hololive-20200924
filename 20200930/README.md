@@ -16,6 +16,14 @@
 
 - 各主播在直播中若涉及敏感问题，请观众预先理解，主播的发言没有政治、社会意图。
 
+中文公告：[第一页](img-supplement-zh-01.png)，[第二页](img-supplement-zh-02.png)
+
+英文公告：[第一页](img-supplement-en-01.png)，[第二页](img-supplement-en-02.png)，[第三页](img-supplement-en-03.png)
+
+日文公告：[第一页](img-supplement-jp-01.png)，[第二页](img-supplement-jp-02.png)
+
+Cover声明，如公告的不同语言版本之间有歧义，以日文版本为准。
+
 # 02
 
 国内观众在讨论后对上述公告基本形成统一观点：该份公告对炎上事件的根源问题没有作出解答，hololive本社未进行深刻反省，反而存在推卸责任之嫌，该份公告的实际作用是安抚欧美市场观众。同时坚定了国内观众对hololive退出中国市场之诉求的决心。
