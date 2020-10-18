@@ -2,6 +2,8 @@
 
 Cover于[公司官方Twitter账号](https://twitter.com/cover_corp)、[B站官方账号](https://space.bilibili.com/286700005/dynamic)、[英文Hololive Twitter账号](https://twitter.com/hololive_en)同步发表最新通告。
 
+**此通告截至本文最后更新时间，仍未在Cover官方网站发表。**
+
 ## 日文通告
 
 ![日文通告01](img-hololive-notice-jp-01.png)
