@@ -16,11 +16,11 @@
 
 - 各主播在直播中若涉及敏感问题，请观众预先理解，主播的发言没有政治、社会意图。
 
-中文公告：[第一页](img-supplement-zh-01.png)，[第二页](img-supplement-zh-02.png)
+中文公告：[第一页](img-supplement-zh-01.png)，[第二页](img-supplement-zh-02.png)。[来源](https://cover-corp.com/2020/09/30/093003/)。
 
-英文公告：[第一页](img-supplement-en-01.png)，[第二页](img-supplement-en-02.png)，[第三页](img-supplement-en-03.png)
+英文公告：[第一页](img-supplement-en-01.png)，[第二页](img-supplement-en-02.png)，[第三页](img-supplement-en-03.png)。[来源](https://cover-corp.com/2020/09/30/093002/)。
 
-日文公告：[第一页](img-supplement-jp-01.png)，[第二页](img-supplement-jp-02.png)
+日文公告：[第一页](img-supplement-jp-01.png)，[第二页](img-supplement-jp-02.png)。[来源](https://cover-corp.com/2020/09/30/093001/)。
 
 Cover声明，如公告的不同语言版本之间有歧义，以日文版本为准。
 
