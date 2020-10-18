@@ -18,6 +18,16 @@
 
 晚间，hololive就此次事件发布道歉声明，此份道歉声明强调了“一个中国”原则，但仅在B站发布，无国外版本。随后发布对涉事主播的处罚决定，对主播赤井心与桐生可可两人进行了为期三周的暂停活动处罚。
 
+中文公告（仅发布于Bilibili）[见此](img-holo-bili-only.jpg)。 [来源见此](https://t.bilibili.com/439666396115075371)。
+
+处罚决定
+
+- 中文公告[见此](img-announcement-zh.jpg)。[来源](https://t.bilibili.com/439668934441809305)。
+
+- 英文公告： [第一页](img-announcement-en-01.png)，[第二页](img-announcement-en-02.png)。[来源](https://cover-corp.com/2020/09/27/200927-1/)。
+
+- 日文公告： [第一页](img-announcement-jp-01.png)，[第二页](img-announcement-jp-01.png)。[来源](https://cover-corp.com/2020/09/27/200927/)。
+
 ## 国内观众对公告表示不满
 
 1. 道歉声明仅在B站发布，处罚决定中未声明“一个中国”原则。
