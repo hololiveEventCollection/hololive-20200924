@@ -4,6 +4,8 @@ B站官方字幕组开始自动解散。详情[见此](Fansub-Disband.md)。
 
 具体情况参考了[NGA相关贴子](https://bbs.nga.cn/read.php?tid=23789238)。已授权。
 
+字幕组组长聊天透露的资料[见此](Fansub-Chat.md)。
+
 # 01
 
 为何总说B站字幕组是hololive发家的重要助力，给大家推荐几篇专栏看一下应该能明白其中的冰山一角
