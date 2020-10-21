@@ -7,8 +7,14 @@
 
 1. [『9.25桐生可可炎上事件』相关事件个人记录（至10月04日）](https://www.bilibili.com/read/cv7853331)
 2. [『9.25桐生可可炎上事件』相关个人记录 Part.2（10.05~10.10）](https://www.bilibili.com/read/cv7921642)
+3. [『9.25桐生可可炎上事件』相关个人记录 Part.3（10.11~10.19）](https://www.bilibili.com/read/cv8024680)
 
 作者已经在文章中申明可转载摘编。为优化观看效果，现于GitHub上按日期切分发布。
+
+同步参考NGA以下贴子：
+
+[HoloLive 1st大逃杀！](https://bbs.nga.cn/read.php?tid=23809268)
+[HOLOLIVE 字幕组 弃坑 与 稿件删除情况汇总](https://bbs.nga.cn/read.php?tid=23789238)
 
 文章包含一部分为方便查找而进行的改变。如认为有不妥之处，请fork并修改后发送pull request。
 
@@ -40,9 +46,19 @@
 
 [十月七日](20201007/README.md)
 
+[十月十一日](20201011/README.md)
+
+[十月十二日](20201012/README.md)
+
+[十月十四至十七日](20201012/README.md)
+
 [十月十八日](20201018/README.md)
 
 [十月十九日](20201019/README.md)
+
+[十月二十日](20201020/README.md)
+
+[十月二十一日](20201021/README.md)
 
 [字幕组相关](Extra/Fansub/README.md)
 
