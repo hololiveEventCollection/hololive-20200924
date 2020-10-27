@@ -60,6 +60,12 @@
 
 [十月二十一日](20201021/README.md)
 
+[十月二十五日](20201025/README.md)
+
+[十月二十六日](20201026/README.md)
+
+[十月二十七日](20201027/README.md)
+
 [字幕组相关](Extra/Fansub/README.md)
 
 [其他相关](Extra/README.md)
