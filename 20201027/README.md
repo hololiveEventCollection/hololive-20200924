@@ -13,3 +13,7 @@
 ![用GIF遮挡聊天显示](img-chitchat-20201027-gif-instead-of-chat.png)
 
 **用GIF遮挡聊天显示**
+
+# 02 Cover收回口头承诺，与HoloCN翻脸
+
+据HoloCN一位主播透露，Cover不承认口头合同，双方再次进入紧张局面。
