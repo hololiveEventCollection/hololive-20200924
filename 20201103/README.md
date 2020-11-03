@@ -14,6 +14,12 @@ Muse Dash 授权事件
 
 **注意红线标记**
 
+同时，Steam上的Muse Dash页面开始涌现大量差评。
+
+![近日大量差评](img-steam-mushdash-not-recommended.png)
+
+**近日大量差评**
+
 ## 不确定信息
 
 - 有NGA网友发布疑似心动网络内部的聊天记录：[记录1](img-xindong-internal-chat-01.jpg)，[记录2](img-xindong-internal-chat-02.jpg)。
