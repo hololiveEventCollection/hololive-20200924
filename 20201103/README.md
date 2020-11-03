@@ -20,6 +20,10 @@ Muse Dash 授权事件
 
 **近日大量差评**
 
+有NGA网友给心动网络去信，得到以下答复：
+
+![img-xindong-email.png](img-xindong-email.png)
+
 ## 不确定信息
 
 - 有NGA网友发布疑似心动网络内部的聊天记录：[记录1](img-xindong-internal-chat-01.jpg)，[记录2](img-xindong-internal-chat-02.jpg)。
