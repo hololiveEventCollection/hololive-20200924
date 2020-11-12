@@ -22,3 +22,11 @@
 [点这里查看来源](https://bbs.nga.cn/read.php?pid=460801330&opt=128)
 
 ![NGA摘录](img-fansub-head-chat.png)
+
+# 部分于Bilibili刊载的字幕组组长会议摘要
+
+相关链接：[【组长会议汇总 —— “怎么会有人能忍受holo这样的态度” ，“说nm呢，不都忍两年了|】](https://www.bilibili.com/read/cv8019343)
+
+相关链接：[【第二次组长会议汇总 —— “狐狸不是pua了组长”，“狐狸是pua了所有人”】](https://www.bilibili.com/read/cv8032444)
+
+相关链接：[【夏组会议汇总 —— “夏组早就已经失去了热爱，做下去是因为真的有很多观众喜欢看”】](https://www.bilibili.com/read/cv8040789)
