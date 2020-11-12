@@ -8,6 +8,7 @@
 1. [『9.25桐生可可炎上事件』相关事件个人记录（至10月04日）](https://www.bilibili.com/read/cv7853331)
 2. [『9.25桐生可可炎上事件』相关个人记录 Part.2（10.05~10.10）](https://www.bilibili.com/read/cv7921642)
 3. [『9.25桐生可可炎上事件』相关个人记录 Part.3（10.11~10.19）](https://www.bilibili.com/read/cv8024680)
+4. [『9.25桐生可可炎上事件』相关个人记录 Part.4（10.20~10.31）](https://www.bilibili.com/read/cv8332795)
 
 作者已经在文章中申明可转载摘编。为优化观看效果，现于GitHub上按日期切分发布。
 
