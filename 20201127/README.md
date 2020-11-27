@@ -27,3 +27,13 @@
 ![Cover公司获得SEGA作品授权](img-cover-obtained-sega-permission.png)
 
 此新闻代表Cover之前由于版权原因隐藏的一部分视频得以解禁。尚不明确此消息对Cover的影响。
+
+# 04
+
+**星街彗星字幕组短暂放出十月底周刊**
+
+此事疑为运营回收账号中的误操作，三分钟后删除。
+
+来源：[NGA](https://bbs.nga.cn/read.php?tid=24371242)
+
+![星街彗星十月底周刊](img-suisei-hoshimachi-weekly-october.jpg)
