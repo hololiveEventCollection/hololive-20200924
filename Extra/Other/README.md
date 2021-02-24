@@ -48,21 +48,21 @@ holostars成员律可，其中之人于近日在B站使用个人账号直播游�
 
 同时，水龙敬老师表示，此事与Vtuber本人无关。
 
-以下是水龙敬老师的推文及翻译。包含一部分已经被水龙敬老师删除的推文。
+以下是水龙敬老师的推文及翻译。目前，水龙敬已经删除所有相关推文。
 
 ![Holo相关的全部删除了，会员也都解除了](img-mizuryu-twitter-deleted-1.png)
 
 ![再也不想和Holo扯上关系了](img-mizuryu-twitter-deleted-2.png)
 
-[![Pixiv与DL网站上的和Holo相关的内容也将在今天之内删除。想要的人请尽快吧。](img-mizuryu-twitter-1.png)](https://twitter.com/mizuryu/status/1363840430584963076)
+![Pixiv与DL网站上的和Holo相关的内容也将在今天之内删除。想要的人请尽快吧。](img-mizuryu-twitter-1.png)
 
 Pixiv与DL网站上的和Holo相关的内容也将在今天之内删除。想要的人请尽快吧。
 
-[![FANZA站的下架请求不是立刻生效的？](img-mizuryu-twitter-2.png)](https://twitter.com/mizuryu/status/1363842073724551172)
+![FANZA站的下架请求不是立刻生效的？](img-mizuryu-twitter-2.png)
 
 FANZA站的下架请求不是立刻生效的？
 
-[![我不是很了解，我从没有停止销售过。](img-mizuryu-twitter-3.png)](https://twitter.com/mizuryu/status/1363842266758934533)
+![我不是很了解，我从没有停止销售过。](img-mizuryu-twitter-3.png)
 
 我不是很了解，我从没有停止销售过。
 
