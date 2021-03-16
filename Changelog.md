@@ -177,3 +177,5 @@
 - 更新Cover不放出Hololive Alternative漫画的推文。
 
 - 更新水龙敬的推文。
+
+- 更新目录。
