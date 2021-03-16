@@ -9,3 +9,5 @@ Cover官方发布推文[1](https://twitter.com/cover_corp/status/137162729242264
 在Cover发表致歉声明后，水龙敬也发表推文表示和解。
 
 ![推文截图](img-mizuryu-tweet.png)
+
+![字幕组翻译](img-mizuryu-tweet-translation.png)
