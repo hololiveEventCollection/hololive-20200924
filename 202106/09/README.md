@@ -8,4 +8,8 @@
 
 ![直播截图](img-stream-screenshot.png)
 
-目前其真实性尚不明确。
+# 02
+
+据Cover[官网信息](https://cover-corp.com/news/detail/20210609a/)，此毕业信息真实可靠。
+
+![官网通告](img-cover-kiryucoco-graduate-notice.png)
