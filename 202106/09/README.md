@@ -10,7 +10,7 @@
 
 # 02
 
-据Cover[日文公告](https://cover-corp.com/news/detail/20210609a/)，此毕业信息真实可靠。
+据Cover[日文公告](https://cover-corp.com/news/detail/20210609a/)，此毕业信息应属实。
 
 除上述日文公告外，另有[简体中文](https://cover-corp.com/news/detail/20210609c/)、[繁体中文](https://cover-corp.com/news/detail/20210609d/)与[英文](https://cover-corp.com/news/detail/20210609b/)公告同步发表。
 
